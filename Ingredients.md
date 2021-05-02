@@ -1,0 +1,3 @@
+-Strawberries
+-Milk
+-Banana

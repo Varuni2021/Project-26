@@ -1,0 +1,1 @@
+Blend strawberries together with milk, then add a banana, then blend it more. After that pour it into a cup.
